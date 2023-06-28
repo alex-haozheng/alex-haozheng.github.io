@@ -16,8 +16,5 @@ I am currently based in Boston looking for internship opportunities for the Summ
 <br><br>
 
 ### Professional
-
-
-
 My research 
 
